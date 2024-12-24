@@ -13,6 +13,11 @@
 
 ```
 Got Unconditional letter from RMIT, Swinburne and QUT so I have to prepare for the visa documents I will continue learning this after getting the visa :O 
+
+
+Got police clearence from Bangladesh police 
+
+Trying to recreate the sop 
 ```
 
  2. [ ] Data Analytics : 
