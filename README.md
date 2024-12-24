@@ -18,6 +18,8 @@ Got Unconditional letter from RMIT, Swinburne and QUT so I have to prepare for t
 Got police clearence from Bangladesh police 
 
 Trying to recreate the sop 
+
+I'm so lazy and procastinating guy :j 
 ```
 
  2. [ ] Data Analytics : 
