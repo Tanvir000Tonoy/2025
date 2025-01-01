@@ -1,30 +1,13 @@
-![Alt text](./)
-
-
-
-
-<h1 style="color:orange;text-align:center; display:flex; ">2025 | OTAKU | DEVELOPER TONOY 👨🏻‍💻</h1>
-
- 1. [ ] Generative AI 
- from : 
- https://youtu.be/mEsleV16qdo?si=-IRxSS2KYGOANAuv
- or 
- https://ineuron.ai -> login using happy2024.tat@gmail.com 
-
 ```
-Got Unconditional letter from RMIT, Swinburne and QUT so I have to prepare for the visa documents I will continue learning this after getting the visa :O 
-
-
-Got police clearence from Bangladesh police 
-
-Trying to recreate the sop 
-
-I'm so lazy and procastinating guy :j 
+2025 as a number is so cool , as a year I will define it either is it best or worst. May Allah give me the potential and skills to manage this year very properly so that I can count it as the most beautiful year of my life. In Sha Allah everything will be fine with ups and downs . Life is full of surprises  
 ```
+# New Year Resolution # 
+1. Personal Development  
+2. Health and fitness 
+3. Skill Development
+4. Social and spiritual Goals
+5. Academic Goals 
+6. Daily Chores 
+7. Lookism ( skin care and more)
 
- 2. [ ] Data Analytics : 
- https://youtube.com/playlist?list=PLjVLYmrlmjGdRs1sGqRrTE-EMraLclJga&si=rQU9WYOa52Vpx9Hi
 
-
- 3. [ ] DevOps :
- https://youtube.com/playlist?list=PL9gnSGHSqcnoqBXdMwUTRod4Gi3eac2Ak&si=8q917r8qLEnkVtiZ
