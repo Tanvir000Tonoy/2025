@@ -1,6 +1,6 @@
-```
-2025 as a number is so cool and it depends on me how this year will be counted . May Allah give me the potential and skills to manage this year very properly so that I can count it as the most beautiful year of my life. In Sha Allah everything will be fine with ups and downs . Life is full of surprises  
-```
+DEVELOPER TONOY 
+- 2025 as a number is so cool and it depends on me how this year will be counted . May Allah give me the potential and skills to manage this year very properly so that I can count it as the most beautiful year of my life. In Sha Allah everything will be fine with ups and downs . Life is full of surprises  
+
 # New Year Resolution # 
 1. Personal Development  
 2. Health and fitness 
