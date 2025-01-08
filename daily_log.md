@@ -13,3 +13,6 @@ probably going to visit IDP in the morning for further processing of visa applic
 
 07.01.2025
 I have corrected the TIN and collected few NIDs and also got the land papers where We have our buildring , it costs around 1 crore 
+
+08.01.2025
+Now I'm sitting in the Notary public center where I have to achomplish a lot of tasks , including financial declaration , fin matrix , and also rental aggriment 
