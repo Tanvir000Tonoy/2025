@@ -27,3 +27,6 @@ i have those points to cover within 6 hours
 5. Github log 
 6. Python3 - Functions
 ```
+
+12.01.2025 
+Visited IDP , File submission part 1
