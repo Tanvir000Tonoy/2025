@@ -16,3 +16,14 @@ I have corrected the TIN and collected few NIDs and also got the land papers whe
 
 08.01.2025
 Now I'm sitting in the Notary public center where I have to achomplish a lot of tasks , including financial declaration , fin matrix , and also rental aggriment 
+
+11.01.2025
+i have those points to cover within 6 hours
+```
+1. SOP - Bandhan 
+2. SOP - tailoring Mine 
+3. Checklist -v2
+4. Immi - update 
+5. Github log 
+6. Python3 - Functions
+```
