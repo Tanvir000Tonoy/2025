@@ -1,3 +1,5 @@
+![2025 Banner](images/2025_banner.jpg)
+
 # Welcome to 2025!
 
 ## A Year of New Beginnings
