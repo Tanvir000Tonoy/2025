@@ -1,4 +1,4 @@
-![2025 Banner](images/2025_banner.jpg)
+![2025 image](./images/2025.jpg)
 
 # Welcome to 2025!
 
