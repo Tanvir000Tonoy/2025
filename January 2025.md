@@ -30,3 +30,7 @@ i have those points to cover within 6 hours
 
 12.01.2025 
 Visited IDP , File submission part 1
+
+13.01.2025
+Visit UIU in the morning , then Visit Bank and then visit IDP 
+Good luck 
