@@ -34,3 +34,6 @@ Visited IDP , File submission part 1
 13.01.2025
 Visit UIU in the morning , then Visit Bank and then visit IDP 
 Good luck 
+
+14.01.2025
+Visit IDP before 11 Am And submit all the visa files. Later call BRAC bank customer care 16221 for the transaction limit increase , And any how lock the visa . Later visit the medical clinic and conduct the Medical test for the Visa . And And prepare for the biometric 
