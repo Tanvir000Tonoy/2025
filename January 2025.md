@@ -37,3 +37,7 @@ Good luck
 
 14.01.2025
 Visit IDP before 11 Am And submit all the visa files. Later call BRAC bank customer care 16221 for the transaction limit increase , And any how lock the visa . Later visit the medical clinic and conduct the Medical test for the Visa . And And prepare for the biometric 
+
+
+[15.01.2025]
+Visit  Labeid 's nearest medical clinic for Australian Health checkup 
