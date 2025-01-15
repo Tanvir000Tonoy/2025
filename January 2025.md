@@ -41,3 +41,6 @@ Visit IDP before 11 Am And submit all the visa files. Later call BRAC bank custo
 
 [15.01.2025]<br>
 Visit  Labeid 's nearest medical clinic for Australian Health checkup 
+
+[16.01.2025]<br>
+Dedicate the whole day to your family and friends , / Learn something meaning full 
