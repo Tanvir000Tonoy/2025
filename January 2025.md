@@ -44,3 +44,6 @@ Visit  Labeid 's nearest medical clinic for Australian Health checkup
 
 [16.01.2025]<br>
 Dedicate the whole day to your family and friends , / Learn something meaning full 
+
+[17.01.2025] <br>
+it's Friday , Right ? Complete the Duhur Salah in the mosque . Pray as much you can . Allah Must give you success. In Sha Allah you will get the Australian Student Visa . Good luck 
