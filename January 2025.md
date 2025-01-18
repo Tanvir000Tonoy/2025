@@ -52,3 +52,6 @@ it's Friday , Right ? Complete the Duhur Salah in the mosque . Pray as much you 
 ```
 [18.01.2025] <br>
 I work all day long learning about Excel formatting && I have updated my Profile on Github 
+
+[19.01.2025] <br>
+Learning More about Microsoft Excel as I'm going to pursue a course called Data science where the knowledge of Spreadsheet is required 
