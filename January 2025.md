@@ -50,3 +50,5 @@ it's Friday , Right ? Complete the Duhur Salah in the mosque . Pray as much you 
 ```js
 //Spreadsheet Repository and Learning the basics of Data Science 
 ```
+[18.01.2025] <br>
+I work all day long learning about Excel formatting && I have updated my Profile on Github 
