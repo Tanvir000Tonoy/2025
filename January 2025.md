@@ -54,4 +54,7 @@ it's Friday , Right ? Complete the Duhur Salah in the mosque . Pray as much you 
 I work all day long learning about Excel formatting && I have updated my Profile on Github 
 
 [19.01.2025] <br>
-Learning More about Microsoft Excel as I'm going to pursue a course called Data science where the knowledge of Spreadsheet is required 
+I have re organized my room setup , for the last time I'm doing so , all that work was only for my sister afifa , I'm going to leave this room soon , so I wanted to gift her my room with all the tools , ( super user mode ultimately ) including my super computer 
+
+[20.01.2025]<br>
+Today I have my Biometric appointment with VFS Global who will collect my Biomatric information and sent it to the australian home affairs . gov. au for my student visa 
