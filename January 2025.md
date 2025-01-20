@@ -58,3 +58,10 @@ I have re organized my room setup , for the last time I'm doing so , all that wo
 
 [20.01.2025]<br>
 Today I have my Biometric appointment with VFS Global who will collect my Biomatric information and sent it to the australian home affairs . gov. au for my student visa 
+
+```c
+Yaaa Huuu ! I got the visa 
+```
+
+[21.01.2025]<br>
+I'm Going meet with Riyad one of my friend from Amirjan College
