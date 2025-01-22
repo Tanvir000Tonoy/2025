@@ -63,3 +63,7 @@ Yaaa Huuu! I got the visa
 
 21.01.2025<br>
 Met with Riyad, a friend from Amirjan College, who came to enjoy the final prize-giving ceremony of Sheikh Rasel Public School and College but ended up spending time with me. We visited Nawra, then Beraid, and I showed him my campus and the wonderful landmarks I used to walk by. I revealed my visa grant to him, and his excitement was remarkable. Later, we walked to Gulshan 2 and met with Tashrif, who was not in a happy mood, so I didn't share the news with him. We exchanged our feelings about our family circumstances while standing on the bridge where I used to cry for Tania (Onu/the girl I had fallen for).
+
+22.01.2025 <br>
+I have purchased a new ssd 512GB and also I helped Faysal to buy the best laptop from the 2nd hand laptop market , Also bought a new earphone [type C]
+Faysal is now owe to me. I borrow him 500Taka
