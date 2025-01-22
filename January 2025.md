@@ -76,3 +76,7 @@ Faysal is now owe to me. I borrow him 500Taka
 <br>
 [exptected]
 Woke up earlier , read out the visa conditions , Understand every single things. Research about flight fees and other expences. Stop using facebook , messanger, Instagram if possible uninstall it. 
+
+[Actually DID]<br>
+1. Talked with Tamim
+2. 
