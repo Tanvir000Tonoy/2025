@@ -1,5 +1,6 @@
 01.01.2025<br>
-Enjoying a BBQ party with Shimul Sarker , Saikat Datta and Bandhan. 
+Enjoying a BBQ party with Shimul Sarker , Saikat Datta and Bandhan. My first BBQ party where I alongside shimul prepared the Chikens and later managed all the shopping parts. It was remarkable.
+ 
 03.01.2025<br>
 I received an email from Swinburne and will try to understand the concept.
 
