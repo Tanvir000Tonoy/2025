@@ -1,3 +1,5 @@
+01.01.2025<br>
+Enjoying a BBQ party with Shimul Sarker , Saikat Datta and Bandhan. 
 03.01.2025<br>
 I received an email from Swinburne and will try to understand the concept.
 
