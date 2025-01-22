@@ -1,6 +1,6 @@
 01.01.2025<br>
 Enjoying a BBQ party with Shimul Sarker , Saikat Datta and Bandhan. My first BBQ party where I alongside shimul prepared the Chikens and later managed all the shopping parts. It was remarkable.
- 
+
 03.01.2025<br>
 I received an email from Swinburne and will try to understand the concept.
 
@@ -70,3 +70,9 @@ Met with Riyad, a friend from Amirjan College, who came to enjoy the final prize
 22.01.2025 <br>
 I have purchased a new ssd 512GB and also I helped Faysal to buy the best laptop from the 2nd hand laptop market , Also bought a new earphone [type C]
 Faysal is now owe to me. I borrow him 500Taka
+
+23.01.2025 <br>
+! Important !
+<br>
+[exptected]
+Woke up earlier , read out the visa conditions , Understand every single things. Research about flight fees and other expences. Stop using facebook , messanger, Instagram if possible uninstall it. 
