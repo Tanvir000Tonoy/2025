@@ -79,4 +79,5 @@ Woke up earlier , read out the visa conditions , Understand every single things.
 
 [Actually DID]<br>
 1. Talked with Tamim
-2. 
+2. Finished Data Management part - 1TB will be the mother ship , 512GB will be my daily driver
+3. Solo 1000 steps walk 
