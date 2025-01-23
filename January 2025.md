@@ -1,3 +1,4 @@
+```
 01.01.2025<br>
 Enjoying a BBQ party with Shimul Sarker , Saikat Datta and Bandhan. My first BBQ party where I alongside shimul prepared the Chikens and later managed all the shopping parts. It was remarkable.
 
@@ -80,4 +81,5 @@ Woke up earlier , read out the visa conditions , Understand every single things.
 [Actually DID]<br>
 1. Talked with Tamim
 2. Finished Data Management part - 1TB will be the mother ship , 512GB will be my daily driver
-3. Solo 1000 steps walk 
+3. Solo 1000 steps walk
+```
