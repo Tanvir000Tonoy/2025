@@ -81,4 +81,8 @@ Woke up earlier , read out the visa conditions , Understand every single things.
 1. Talked with Tamim
 2. Finished Data Management part - 1TB will be the mother ship , 512GB will be my daily driver
 3. Solo 1000 steps walk
+
+
+24.01.2025 <br>
+Resetting All the Devices to it's fectory Default mode. I love it's refreashing vibe as well as it's responsiveness . It could be my Bad habit but It's also a good practice.
 ```
