@@ -85,4 +85,7 @@ Resetting all devices to their factory default mode. I love its refreshing vibe 
 Rakibul Vhaiya got the visa. Foysal expressed that the laptop I bought for him was functioning properly. I disclosed my visa grant news to my neighbor. Learned Excel 48->54%. Going to select my course structures soon. Spent quality time with my family. Also fixed my mother's sewing machine.
 
 27.01.2025 <br>
-I have purchased the airline Ticket the details are here : 
+I have purchased the airline Ticket the details are here : I got the whole point this airticket . Another mission acchomplished : 
+1. Shopping Done
+2. Got an Airtag of mine :) 
+3. It's so cool... 
