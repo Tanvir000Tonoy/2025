@@ -83,3 +83,6 @@ Resetting all devices to their factory default mode. I love its refreshing vibe 
 
 25.01.2025<br>
 Rakibul Vhaiya got the visa. Foysal expressed that the laptop I bought for him was functioning properly. I disclosed my visa grant news to my neighbor. Learned Excel 48->54%. Going to select my course structures soon. Spent quality time with my family. Also fixed my mother's sewing machine.
+
+27.01.2025 <br>
+I have purchased the airline Ticket the details are here : 
