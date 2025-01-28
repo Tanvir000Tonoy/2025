@@ -88,4 +88,5 @@ Rakibul Vhaiya got the visa. Foysal expressed that the laptop I bought for him w
 I have purchased the airline Ticket the details are here : I got the whole point this airticket . Another mission acchomplished : 
 1. Shopping Done
 2. Got an Airtag of mine :) 
-3. It's so cool... 
+3. It's so cool...
+i got the basics 
