@@ -89,4 +89,9 @@ I have purchased the airline Ticket the details are here : I got the whole point
 1. Shopping Done
 2. Got an Airtag of mine :) 
 3. It's so cool...
-i got the basics 
+
+28.01.2025 <br>
+The face-care routine commenced properly. I got the idea how to use the product with my face. I also collected few other things like socks for abroad. Later today I solved the DPs / LDS profit of my bank account in Bangladeshi Bank called Al-Arafa Islamic bank ltd. At the end I meet with a group chair person called Mr X who studied in Australia Tasmenia . I got to apply for a e driving licence . I have drived today for few kilomiters. 
+
+29. Making the excel sheet of my items that I will take with me to Australia
+
