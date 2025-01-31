@@ -22,7 +22,6 @@ At the Notary public center to accomplish several tasks, including financial dec
 
 11.01.2025<br>
 I have these points to cover within 6 hours:
-
 1. SOP - Bandhan
 2. SOP - Tailoring Mine
 3. Checklist - v2
@@ -84,17 +83,20 @@ Resetting all devices to their factory default mode. I love its refreshing vibe 
 25.01.2025<br>
 Rakibul Vhaiya got the visa. Foysal expressed that the laptop I bought for him was functioning properly. I disclosed my visa grant news to my neighbor. Learned Excel 48->54%. Going to select my course structures soon. Spent quality time with my family. Also fixed my mother's sewing machine.
 
-27.01.2025 <br>
-I have purchased the airline Ticket the details are here : I got the whole point this airticket . Another mission acchomplished : 
-1. Shopping Done
-2. Got an Airtag of mine :) 
+27.01.2025<br>
+I have purchased the airline ticket. The details are here: I got the whole point of this airticket. Another mission accomplished:
+1. Shopping done
+2. Got an Airtag of mine :)
 3. It's so cool...
 
-28.01.2025 <br>
-The face-care routine commenced properly. I got the idea how to use the product with my face. I also collected few other things like socks for abroad. Later today I solved the DPs / LDS profit of my bank account in Bangladeshi Bank called Al-Arafa Islamic bank ltd. At the end I meet with a group chair person called Mr X who studied in Australia Tasmenia . I got to apply for a e driving licence . I have drived today for few kilomiters. 
+28.01.2025<br>
+The face-care routine commenced properly. I got the idea how to use the product with my face. I also collected a few other things like socks for abroad. Later today I solved the DPs / LDS profit of my bank account in Bangladeshi Bank called Al-Arafa Islamic Bank Ltd. At the end, I met with a group chairperson called Mr. X who studied in Australia, Tasmania. I got to apply for an e-driving license. I have driven today for a few kilometers.
 
-29. Making the excel sheet of my items that I will take with me to Australia
+29.01.2025<br>
+Making the Excel sheet of my items that I will take with me to Australia.
 
-30. I have tailored all the jeens pants alongside the T shirts . And planning for the party of my visa grant 
+30.01.2025<br>
+I have tailored all the jeans pants alongside the T-shirts. And planning for the party of my visa grant.
 
-31. Today I will celebrate a party in "Kacchi Vai " with childhood friends. as well as I have finished the Microsoft excel so gonna treat myself for that :) 
+31.01.2025<br>
+Today I will celebrate a party in "Kacchi Vai" with childhood friends. I have also finished Microsoft Excel, so I'm going to treat myself for that :)
