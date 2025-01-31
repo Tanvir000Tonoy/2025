@@ -1,3 +1,4 @@
+```
 [01.02.2025]
 Today I will try my best to sleep properly and learn something meaningful like Python or R. Whatsoever I'm doing great. Got the visa but an uncertainity is killing me. How I will do work there like I have no experiences. I do know how to operate cars or any computer regaring task but I'm not used to do any of them . :) Oh God Please save me ! 
 Todays Agenda : 
@@ -8,5 +9,4 @@ Todays Agenda :
 [02.02.2025]
 
 
-
-
+```
