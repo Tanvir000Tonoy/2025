@@ -100,3 +100,8 @@ I have tailored all the jeans pants alongside the T-shirts. And planning for the
 
 31.01.2025<br>
 Today I will celebrate a party in "Kacchi Vai" with childhood friends. I have also finished Microsoft Excel, so I'm going to treat myself for that :)
+
+[actually did]
+1. celebrated the party (conditions were one can order anything untill he is full )
+2. Visited international Trade Fair 2025 as it's the last day of it and clicked tons of Images
+3. Purchased new pillow and sleeping mask from Jamuna fp and they cost around 19$ in total which was a big deal :)  
