@@ -7,6 +7,9 @@ Todays Agenda :
 3. Try to do some exercises like push ups and burpy 
 
 [02.02.2025]
+I went to Jamuna FP for shopping and also took dental care filling and cleaning the oral infections
 
+[03.02.2025]
+ Nothing special, M(special gargon) count 3, spent time with shimul , got connected with siam sarwar and Emon hasan siam , TR jony and Abdullah , masud and almost a lot of people , mom got cold and cough May Allah give her soundness... 
 
 ```
