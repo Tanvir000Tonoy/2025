@@ -12,4 +12,13 @@ I went to Jamuna FP for shopping and also took dental care filling and cleaning 
 [03.02.2025]
  Nothing special, M(special gargon) count 3, spent time with shimul , got connected with siam sarwar and Emon hasan siam , TR jony and Abdullah , masud and almost a lot of people , mom got cold and cough May Allah give her soundness... 
 
+[04.02.2025]
+It was the last day of Waz , even though I did not visited the decorated place for a single time. I did enjoyed few steps with shimul , emon hasan sakib, Joy sarker. Later I meet with Masud , Rana , Abdul Goni, Aiman Vhaiya and maria while purchasing pens from Tota's shop. Installed Jan AI. again into my system
+
+[05.02.2025]
+In the morning I had a webiner with swinburne commmunity. I participated and engaged with the slides it was a total new experience. Later My dad ordered me to meet Abur Sakur saheb , (NayebeRasul) , even though I comphromised by proving the fee and pen to Mehedi (same aged boy)
+, later I alongside my mom and sister visited her(M) mother's house. My aunt and her husband was also there for us. We had a quality time spent together. It was really a magical moment for me where my maternal grand father hand shakked with me and my maternal grand-mohter pushed air/ wind to cool down the chicken curry that I was enjoying for the last time as Later then I never meet with her. (Going to Australia for 5years and later she might not be alive as for her age count was more than average), Later afifa argued to buy a cake so he took an auto rickshaw and visited bagber bazar. while I was near to my home, shimul called me to solve his problem / assignment though it turned out he was planning to give me a treat by preparing food that we enjoyed together. It was really a special day. 
+
+[06.02.2025]
+I visited BRAC bank for endorsement 7000USD to my account and passport for later use in Australia , then I visited IDP with bandhan and had a simple conversation with our mentor. Later we missed the stop of jalshiri so we took an auto rickshaw from sumu market to Dokkhinbag. Bandhan and I exchanged a lot of words. later shimul joinned us but I got a call from my mom , and I had to visit idal tailor for my shuit , formal dress and other dressings. later I visited there with my father. after finsihing shopping I took a fassial wash. it was very refreashing. Later I'm writing my github daily log. 
 ```
