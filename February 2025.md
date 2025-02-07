@@ -21,4 +21,7 @@ In the morning I had a webiner with swinburne commmunity. I participated and eng
 
 [06.02.2025]
 I visited BRAC bank for endorsement 7000USD to my account and passport for later use in Australia , then I visited IDP with bandhan and had a simple conversation with our mentor. Later we missed the stop of jalshiri so we took an auto rickshaw from sumu market to Dokkhinbag. Bandhan and I exchanged a lot of words. later shimul joinned us but I got a call from my mom , and I had to visit idal tailor for my shuit , formal dress and other dressings. later I visited there with my father. after finsihing shopping I took a fassial wash. it was very refreashing. Later I'm writing my github daily log. 
+
+[07.02.2025]
+In the morning It felt so tired as I did not sleep well last night. But at noon, I cleaned my room, had my shower, and  later breakfast. I enjoyed learning how to ride / drive a motocycle . I also know how it the cluch and gear system works. That was 3rd day I had driven a motobike, not only I drived but also I took shimul with me in the back sit. We enjoyed "Chatpati" in Soni road. It was full of fun , I overtaked a car , even though I had a strange feeling like is that me who is driving this motorbike . Indeed Allah allowed me learning this skill without having serious injury. "ALHAMDULILLAH :)"
 ```
