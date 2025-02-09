@@ -27,4 +27,11 @@ In the morning It felt so tired as I did not sleep well last night. But at noon,
 
 [08.02.2025]
 visited jamuna fp and later visited dental doctor for the filling.
+
+
+[09.02.2025]
+Today I gave achieved those points :
+1. exchanged 238k bdt - 3k AUD
+2. meet old friends - Tashrif and Shirhan 
+3. solved coding problems with shimul 
 ```
