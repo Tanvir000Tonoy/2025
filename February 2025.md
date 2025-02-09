@@ -24,4 +24,7 @@ I visited BRAC bank for endorsement 7000USD to my account and passport for later
 
 [07.02.2025]
 In the morning It felt so tired as I did not sleep well last night. But at noon, I cleaned my room, had my shower, and  later breakfast. I enjoyed learning how to ride / drive a motocycle . I also know how it the cluch and gear system works. That was 3rd day I had driven a motobike, not only I drived but also I took shimul with me in the back sit. We enjoyed "Chatpati" in Soni road. It was full of fun , I overtaked a car , even though I had a strange feeling like is that me who is driving this motorbike . Indeed Allah allowed me learning this skill without having serious injury. "ALHAMDULILLAH :)"
+
+[08.02.2025]
+visited jamuna fp and later visited dental doctor for the filling.
 ```
