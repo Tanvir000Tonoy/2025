@@ -29,7 +29,7 @@ In the morning It felt so tired as I did not sleep well last night. But at noon,
 visited jamuna fp and later visited dental doctor for the filling.
 
 [09.02.2025]
-Got 3k AUD , Video called Ador , Meet with tashrif and Shirhan, later talked with maruf , Spent time with my family. It was magical to get my dad to the iconic place from where I wanted to be hanging down once a while . 
+Got 3k AUD , Video called Ador , Meet with tashrif and Shirhan, later talked with maruf , Spent time with my family. It was magical to get my dad to the iconic place from where I wanted to be hanging down once a while . Later I have solved few problem of java programming language with shimul sarker , with the help of my offline llm and online alternatives. 
 
 [10.02.2025]
 I had my driving licence exam and I succeed to get the licence. 
