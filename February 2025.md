@@ -27,4 +27,13 @@ In the morning It felt so tired as I did not sleep well last night. But at noon,
 
 [08.02.2025]
 visited jamuna fp and later visited dental doctor for the filling.
+
+[09.02.2025]
+Got 3k AUD , Video called Ador , Meet with tashrif and Shirhan, later talked with maruf , Spent time with my family. It was magical to get my dad to the iconic place from where I wanted to be hanging down once a while . 
+
+[10.02.2025]
+I had my driving licence exam and I succeed to get the licence. 
+
+[11.02.2025]
+Going to visit state university , for a simple meeting with Riyad, Amit and Amit Kor 
 ```
