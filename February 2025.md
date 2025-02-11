@@ -35,5 +35,8 @@ Got 3k AUD , Video called Ador , Meet with tashrif and Shirhan, later talked wit
 I had my driving licence exam and I succeed to get the licence. 
 
 [11.02.2025]
-Going to visit state university , for a simple meeting with Riyad, Amit and Amit Kor 
+Going to visit state university , for a simple meeting with Riyad, Amit and Amit Kor , Also click few fantastic Photograph with pretty girls :)
+
+[12.02.2025]
+Planning for the next 6 Days. 
 ```
