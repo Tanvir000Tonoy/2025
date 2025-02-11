@@ -39,4 +39,7 @@ Going to visit state university , for a simple meeting with Riyad, Amit and Amit
 
 [12.02.2025]
 Planning for the next 6 Days. 
+Calculating : 
+
+144 hours - 48 hours = 96 hour :) Life will never be the same 
 ```
