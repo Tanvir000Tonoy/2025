@@ -42,4 +42,7 @@ Planning for the next 6 Days.
 Calculating : 
 
 144 hours - 48 hours = 96 hour :) Life will never be the same 
+
+[13.02.2025]
+I meet a few leaders of Jalshiri Officer , one pf the officer name was Mamun he suggested me how to survive in Australia , another one shared an address from where I can get assistance. finally the suprime leader suggested me not to forget my Dad . It was so special . Later I talked with Tania that I want to meet with her. and now spending time with my friends . 
 ```
