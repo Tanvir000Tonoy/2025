@@ -45,4 +45,7 @@ Calculating :
 
 [13.02.2025]
 I meet a few leaders of Jalshiri Officer , one pf the officer name was Mamun he suggested me how to survive in Australia , another one shared an address from where I can get assistance. finally the suprime leader suggested me not to forget my Dad . It was so special . Later I talked with Tania that I want to meet with her. and now spending time with my friends . 
+
+[14.02.2025]
+It's friday and I'm planning something crazy . I want to go out with Tania. Even though she don't like me. Still I don't wanna miss that opportuinity. If my dad allows me to take his car , it would turned out a very good experience as we will not feel glitchy or the warm weather might not effect us. Else I'm just doing the boring stuff. If my dad dosen't allow me to take the car then I might cancel the plan for sure. 
 ```
