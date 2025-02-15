@@ -55,4 +55,6 @@ My Dad Allowed me to take the car and enjoy with Tania . For the very first time
 # mission accomplished!!!!!!!!!!!!!!!!!perfect👌
 This line was writen by my love Tania 
 
+[16.02.2025]
+I have few hours now. So be very careful Tonoy. No more procastination. You have a long time to pass be selfish. Be strong. Be the best version of yourself. From Tomorrow 
 ```
