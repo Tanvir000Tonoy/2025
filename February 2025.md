@@ -56,5 +56,11 @@ My Dad Allowed me to take the car and enjoy with Tania . For the very first time
 This line was writen by my love Tania 
 
 [16.02.2025]
-I have few hours now. So be very careful Tonoy. No more procastination. You have a long time to pass be selfish. Be strong. Be the best version of yourself. From Tomorrow 
+I have few hours now. So be very careful Tonoy. No more procastination. You have a long time to pass be selfish. Be strong. Be the best version of yourself. From Tomorrow only focus on the immigration and landing parts. Do a lot of research about flights. 
+
+[17.02.2025]
+Be polite with each person and relative. Collect as many memories as you can (in any form). Today is Fariya's birthday, so wish her good luck. You did not sleep properly, so take short naps whenever you get time. Don't waste time on the internet. Go outside and talk with people; who knows who will be absent when you are present next? Today, Tania posted a story where she was holding your diary and a flower, and the song she added to the story was:
+
+"tomake chhowar nei tw amar shaddho , dekhte pawa shei tw boro vhaggo" - WOW 
+
 ```
