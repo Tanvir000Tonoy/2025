@@ -63,4 +63,7 @@ Be polite with each person and relative. Collect as many memories as you can (in
 
 "tomake chhowar nei tw amar shaddho , dekhte pawa shei tw boro vhaggo" - WOW 
 
+[18.02.2025]
+Today is my flight. I don't know what is going to happen. FI AMANILLAH - Tonoy ... 
+1. :) let's see 
 ```
