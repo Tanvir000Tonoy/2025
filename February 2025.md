@@ -67,4 +67,7 @@ Be polite with each person and relative. Collect as many memories as you can (in
 Today is my flight. I don't know what is going to happen. FI AMANILLAH - Tonoy ... 
 1. :) let's see 
 এক পাহাড় সমান সাহস দিয়ে দিচ্ছি উড়াল, না উড়িতে জানি, তবুও উড়ছি বেশ। 
+
+[19.02.2025]
+First day In Australia 😄
 ```
