@@ -66,20 +66,10 @@ Be polite with each person and relative. Collect as many memories as you can (in
 [18.02.2025]
 Today is my flight. I don't know what is going to happen. FI AMANILLAH - Tonoy ... 
 1. :) let's see 
-এক পাহাড় সমান সাহস দিয়ে দিচ্ছি উড়াল, না উড়িতে জানি, তবুও উড়ছি বেশ।  
+=======
+এক পাহাড় সমান সাহস দিয়ে দিচ্ছি উড়াল, না উড়িতে জানি, তবুও উড়ছি বেশ। 
 
 [19.02.2025]
-I reached in Melbourne Airport in 11 (local time) and nobody was there but , tamim was directing me accordingly. Later around 1:00 (local time) Itmam Amio received me , later he also treated me Chicken. Then I took a small nap. Later Tamim prepared the meal for noon and night. 
-
-[20.02.2025]
-Today we have visited the shopping complex of Chadmert. I Really enjoyed a lot. I have purchased a lot of goods. : 
-1. Rice Cooker ,  
-2. Cooking Bowl ,
-3. Knief,
-4. plastic container. 
-5. 2 Ceramic Bowl 
-6. spoun. 
-
-[21.02.2025]
-Today is Friday so I would visit Swinburne University for creating my Bank account 
+First day In Australia 😄
+>>>>>>> 405c3a6ec96d8b79c9c82151dc6cb14d0cda3b99
 ```
