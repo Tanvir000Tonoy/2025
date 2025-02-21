@@ -79,5 +79,5 @@ First day In Australia 😄
 আজকে ইউনিভার্সিটিতে আইডি, কোর্স - এনরোলমেন্ট, ক্লাস - শেডিউল। 
 
 [22.02.2025]
-
+Creating a new Apple ID for being lost forevery from Bangladeshi community 
 ```
