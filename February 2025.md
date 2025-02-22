@@ -80,5 +80,8 @@ First day In Australia 😄
 ```
 [22.02.2025]
 Currently, I'm not being productive and just procrastinating.
+
+[23.02.2025]
+studying the course structure and it's basics 
 ```
 ```
