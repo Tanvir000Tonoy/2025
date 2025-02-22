@@ -77,7 +77,8 @@ First day In Australia 😄
 
 [21.02.2025]
 আজকে ইউনিভার্সিটিতে আইডি, কোর্স - এনরোলমেন্ট, ক্লাস - শেডিউল। 
-
+```
 [22.02.2025]
-Creating a new Apple ID for being lost forevery from Bangladeshi community 
+Currently, I'm not being productive and just procrastinating.
+```
 ```
