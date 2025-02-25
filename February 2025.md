@@ -89,5 +89,15 @@ Today I have visited my swinburne campus , enjoyed redbull for the first time an
 
 [25.02.2025]
 Cleaned my room , also my cloths too. Getting ready for the academic comeback. Planning how to be a good student also a good friend. Good English speaker :) 
+
+{My aim for feb was to recap the python syntax now I should do that, I believe I have few days to spend on this topic and still manage to survive in Australia }
+
+Today I will try to Achieve those points. 
+1. Store the transcend ssd into your main luggage .
+2. Reset the macbook
+3. Make sure you're productive again.
+4. Use macbook for 4 hourse reading books and youtube only .
+5. Take control of your emotion .Nothing to do with the emotion. 
+6. Cook the meal again for costras and Tonoy :) 
 ```
 ```
