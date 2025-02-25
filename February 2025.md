@@ -85,6 +85,9 @@ Currently, I'm not being productive and just procrastinating.
 studying the course structure and it's basics 
 
 [24.02.2025]
-Today I have visited my swinburne campus , enjoyed redbull for the first time and free chips , burger and so far the best feeling was what I had imagind , really happened in real world. Later I have open an account in commonwealth bank , Hawthron branch. 
+Today I have visited my swinburne campus , enjoyed redbull for the first time and free chips , burger and so far the best feeling was what I had imagind , really happened in real world. Later I have open an account in commonwealth bank , Hawthron branch. Highlighting part was I prepared dall for the first time and cooked rice. Enjoyed the mean with Costas 
+
+[25.02.2025]
+Cleaned my room , also my cloths too. Getting ready for the academic comeback. Planning how to be a good student also a good friend. Good English speaker :) 
 ```
 ```
