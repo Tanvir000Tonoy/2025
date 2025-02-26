@@ -94,10 +94,13 @@ Cleaned my room , also my cloths too. Getting ready for the academic comeback. P
 
 Today I will try to Achieve those points. 
 1. Store the transcend ssd into your main luggage .
-2. Reset the macbook
-3. Make sure you're productive again.
-4. Use macbook for 4 hourse reading books and youtube only .
-5. Take control of your emotion .Nothing to do with the emotion. 
-6. Cook the meal again for costras and Tonoy :) 
+2. Reset the macbook - Why ! 
+3. Make sure you're productive again. ( indeed I'm )
+4. Use macbook for 4 hourse reading books and youtube only . ( okey It's on going )
+5. Take control of your emotion .Nothing to do with the emotion. ( Got you )
+6. Cook the meal again for costras and Tonoy :) ( Done)
+
+[26.02.2025]
+Watching the course outline and syllabus. It's not easy though who said I'm a noob :) . Allah Vorosha , he will guide me properly. 
 ```
 ```
