@@ -102,5 +102,12 @@ Today I will try to Achieve those points.
 
 [26.02.2025]
 Watching the course outline and syllabus. It's not easy though who said I'm a noob :) . Allah Vorosha , he will guide me properly. 
+
+[27.02.2025]
+Today was an exciting day. I did a lot of things. In the morning I visited Southern Cross Train Station with COstas, He drived there for me. Later I meet with Rakibul Hasan Vhaiya and he handed over me my driving licence. Afterwards we visited the CQ university Melbourne for rakibul vhaiya's Enrollment. And later We got into the metro but missed the burnley station so we had to walk for 40 minutes to reach my university and oh god It was the best walk I ever had in AUSTRALIA. I just loved the process. After reaching there they offered free lunch. It was a vageterian dish. After taking the meal I left Rakibul vaiya to the Glenferry Station and straightly head towards to my course induction ceremony in ATC Buildring. it was like ATC 101 - ATC 316. The Prof. Man HUng was leading us. AT the end i arrived at my current resident with few gifts from swinburne .
+Those are :
+1. Diary 
+2. A Small Mug 
+3. Few more bags
 ```
 ```
