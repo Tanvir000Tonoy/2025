@@ -112,5 +112,7 @@ Those are :
 
 [28.02.2025]
 Today was our discovery day and I enjoyed a lot. In the morning I went to swinburne university of technoloyg with one of my home mate called Tanvir SHuvo. I enjoyed a lot with the fastive environment. I don't know what to expect from that university but it is really something out of my mind. I'm hopeful , optimistic about the future. I'm afried about tomorrow. The ramadan is going to commence but I don't know how I will pass this month. I have a lot of things to do. whatever. Today was fun. I did shopping , also purchased a new airbuds type c and it's really good product. later I also did the zumma namaz. But I'm not feeling happy though I'll bypass this feeling by learning something meaningful 
+
+FEB was a busy month so I did tried to complete my goal [reviewing python syntax] but faild to achieve it. Now Let's see March might be my new landmark.
 ```
 ```
