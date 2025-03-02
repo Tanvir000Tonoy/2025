@@ -13,5 +13,10 @@ I visited Rakibul vaiya in north melvarn station. And from there we went to St A
 [02.03.2025]
 Today I'm planning to prepare chicken curry in supervised of TAMIM. It's Ramadan 2nd so it's the best time learning how to prepare good meals. 
  [x] 3:00 pm begin cooking
- [x] 
+ [x] Success 
+ [x] Tamim problem resolved
+ [x] Alhamdulillah
+
+ [03.03.2025]
+ Today I have my first university class and I'm super excited
 ```
