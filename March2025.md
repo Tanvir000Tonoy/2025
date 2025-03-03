@@ -25,4 +25,7 @@ Today I'm planning to prepare chicken curry in supervised of TAMIM. It's Ramadan
 
  [04.03.2025]
  it's late night and I'm still awake setting up the environment for the classroom. Today I have an offline class at Hawthron Campus. ATC 101 its about the fundamental of programming ! and fun fact is I know 
+ Today I will try to achieve those points :
+ [ ] Finish watching the videos regarding the ruby programming language 
+ [ ] connect the swinburne student wifi and learn where I can study and make sure you are carrying the charger  
 ```
