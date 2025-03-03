@@ -21,5 +21,8 @@ Today I'm planning to prepare chicken curry in supervised of TAMIM. It's Ramadan
  Today I have my first university class and I'm super excited...
  [x] cos10004 computer system
  [x] cos10026 Web application project
- 
+ [x] prepareing for the next class 
+
+ [04.03.2025]
+ it's late night and I'm still awake setting up the environment for the classroom. Today I have an offline class at Hawthron Campus. ATC 101 its about the fundamental of programming ! and fun fact is I know 
 ```
