@@ -18,5 +18,8 @@ Today I'm planning to prepare chicken curry in supervised of TAMIM. It's Ramadan
  [x] Alhamdulillah
 
  [03.03.2025]
- Today I have my first university class and I'm super excited
+ Today I have my first university class and I'm super excited...
+ [x] cos10004 computer system
+ [x] cos10026 Web application project
+ 
 ```
