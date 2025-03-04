@@ -23,9 +23,17 @@ Today I'm planning to prepare chicken curry in supervised of TAMIM. It's Ramadan
  [x] cos10026 Web application project
  [x] prepareing for the next class 
 
- [04.03.2025]
+[04.03.2025]
  it's late night and I'm still awake setting up the environment for the classroom. Today I have an offline class at Hawthron Campus. ATC 101 its about the fundamental of programming ! and fun fact is I know 
  Today I will try to achieve those points :
  [ ] Finish watching the videos regarding the ruby programming language 
- [ ] connect the swinburne student wifi and learn where I can study and make sure you are carrying the charger  
+ [x] connect the swinburne student wifi and learn where I can study and make sure you are carrying the charger  
+ [x] join the class on time 
+
+[05.04.2025]
+Today is my first mathematics class at swinburne university of technology at ATC101 from 12:30 - till 2:30 so I have to prepare for it. My agenda is kinda this formate below :
+[ ] Join the class promptly 
+[ ] Make peers and friends
+[ ] Enjoy talking with others
+[ ] Bring a pack of date (khejur)
 ```
