@@ -32,8 +32,9 @@ Today I'm planning to prepare chicken curry in supervised of TAMIM. It's Ramadan
 
 [05.04.2025]
 Today is my first mathematics class at swinburne university of technology at ATC101 from 12:30 - till 2:30 so I have to prepare for it. My agenda is kinda this formate below :
-[ ] Join the class promptly 
-[ ] Make peers and friends
-[ ] Enjoy talking with others
-[ ] Bring a pack of date (khejur)
+[x] Join the class promptly 
+[x] Make peers and friends
+[x] Enjoy talking with others
+[x] Bring a pack of date (khejur)
+[ ] Finish watching the videos regarding the ruby programming language 
 ```
