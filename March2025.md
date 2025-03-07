@@ -37,4 +37,19 @@ Today is my first mathematics class at swinburne university of technology at ATC
 [x] Enjoy talking with others
 [x] Bring a pack of date (khejur)
 [ ] Finish watching the videos regarding the ruby programming language 
+
+[06.03.2025]
+Class = lab I have to participate in cos 10026 web technology project and we have completed an assignment in that class. I had another Class at the 6th floor I weared formal dress and I was looking smart. I did a lot of fun. There was an assignment but I already completed the assignment for first week. submitted the pdf file in the ed section . 
+[x] Introduction to programming Assingment pdf submitted 
+[x] Web Technology project lab class assingment 
+
+[07.03.2025]
+I have to participate into the dedicated room at swinburne first one is lab for computer system , #Assignment1 , one Lecture about mathematics- study group , a simple question which answer will be 27, later I had the zumma namaz with Tanvir Shuvo , at the end the lab class / group project calss was interesting #Assignment1
+[ ] Computer system - logic gate logisim 
+[ ] Preliminary Mathematics - 
+            1. Class Assignment 
+            2. Group project ( making a video that describe something)
+
+[08.03.2025]
+Today My ambition is completing all the due Assignments. I can do the logisim assignment though the group project from mathematics will not be in my favior... 
 ```
