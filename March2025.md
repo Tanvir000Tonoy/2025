@@ -45,10 +45,10 @@ Class = lab I have to participate in cos 10026 web technology project and we hav
 
 [07.03.2025]
 I have to participate into the dedicated room at swinburne first one is lab for computer system , #Assignment1 , one Lecture about mathematics- study group , a simple question which answer will be 27, later I had the zumma namaz with Tanvir Shuvo , at the end the lab class / group project calss was interesting #Assignment1
-[ ] Computer system - logic gate logisim 
+[x] Computer system - logic gate logisim 
 [ ] Preliminary Mathematics - 
-            1. Class Assignment 
-            2. Group project ( making a video that describe something)
+            1. Class Assignment []
+            2. Group project ( making a video that describe something) []
 
 [08.03.2025]
 Today My ambition is completing all the due Assignments. I can do the logisim assignment though the group project from mathematics will not be in my favior... 
