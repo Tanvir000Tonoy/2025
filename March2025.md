@@ -52,4 +52,12 @@ I have to participate into the dedicated room at swinburne first one is lab for 
 
 [08.03.2025]
 Today My ambition is completing all the due Assignments. I can do the logisim assignment though the group project from mathematics will not be in my favior... 
+
+[09.03.2025]
+Today is off day So, I can do those things accordingly : 
+[x] Backup and rearrage Images and videos from Phone to SSD
+[] Finish watching rubi programming regarding videos 
+[] having a simple journey alone  / in a group 
+[] Making a proper shedule 
+[] Appling to any food delivery services 
 ```
