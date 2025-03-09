@@ -60,4 +60,10 @@ Today is off day So, I can do those things accordingly :
 [] having a simple journey alone  / in a group 
 [] Making a proper shedule 
 [] Appling to any food delivery services 
+
+[10.03.2025]
+Today I don't have any specific goals. I would like to accomplish my last uncompleted tasks and those are : 
+[ ] Watching ruby programming language videos 
+[ ] Apply for Door desh , ubar eats
+[ ] Buy a e BIKE 
 ```
