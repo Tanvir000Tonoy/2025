@@ -64,6 +64,6 @@ Today is off day So, I can do those things accordingly :
 [10.03.2025]
 Today I don't have any specific goals. I would like to accomplish my last uncompleted tasks and those are : 
 [ ] Watching ruby programming language videos 
-[ ] Apply for Door desh , ubar eats
+[x] Apply for Door desh , ubar eats
 [ ] Buy a e BIKE 
 ```
