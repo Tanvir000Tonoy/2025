@@ -56,14 +56,18 @@ Today My ambition is completing all the due Assignments. I can do the logisim as
 [09.03.2025]
 Today is off day So, I can do those things accordingly : 
 [x] Backup and rearrage Images and videos from Phone to SSD
-[] Finish watching rubi programming regarding videos 
 [] having a simple journey alone  / in a group 
-[] Making a proper shedule 
 [] Appling to any food delivery services 
 
 [10.03.2025]
 Today I don't have any specific goals. I would like to accomplish my last uncompleted tasks and those are : 
+[x] Apply for Door desh , 
+[ ] Ubar eats
+
+
+[11.03.2025]
+[ ] Attain the class Introduction to programming 10009 ? 
 [ ] Watching ruby programming language videos 
-[x] Apply for Door desh , ubar eats
 [ ] Buy a e BIKE 
+[ ] Making a proper shedule 
 ```
