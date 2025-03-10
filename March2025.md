@@ -70,4 +70,6 @@ Today I don't have any specific goals. I would like to accomplish my last uncomp
 [ ] Watching ruby programming language videos 
 [ ] Buy a e BIKE 
 [ ] Making a proper shedule 
+[ ] Confornting yourself, Asking a lot of WHY question .... 
+[ ] Resolve the conflict with your innerselfe :) Good luck man , You won't live long so why to worry a lot enjoy the days , enjoy every single thing you have, now 
 ```
