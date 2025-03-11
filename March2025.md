@@ -66,10 +66,25 @@ Today I don't have any specific goals. I would like to accomplish my last uncomp
 
 
 [11.03.2025]
-[ ] Attain the class Introduction to programming 10009 ? 
+[x] Attain the class Introduction to programming 10009 ? 
 [ ] Watching ruby programming language videos 
-[ ] Buy a e BIKE 
+[x] Buy a e BIKE 
+[x] Finished the first assignment form the mathematics course 
 [ ] Making a proper shedule 
+
+Lets make it like this way, Consider marking those sujbects using 1,2,3,4
+okey ? 
+1. Introduction to programming 
+2. 
++--+--+--+--+--+--+--+
+| S|Su|Mo|Tu|We|Th|Fr|
+|                    |
+|
+|
+|
+|
 [ ] Confornting yourself, Asking a lot of WHY question .... 
 [ ] Resolve the conflict with your innerselfe :) Good luck man , You won't live long so why to worry a lot enjoy the days , enjoy every single thing you have, now 
+
+[what the fuck why nothing is working fine :0 ]
 ```
