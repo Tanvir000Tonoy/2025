@@ -87,4 +87,6 @@ okey ?
 [ ] Resolve the conflict with your innerselfe :) Good luck man , You won't live long so why to worry a lot enjoy the days , enjoy every single thing you have, now 
 
 [what the fuck why nothing is working fine :0 ]
+
+jani na kisu 
 ```
