@@ -87,4 +87,18 @@ okey ?
 [ ] Resolve the conflict with your innerselfe :) Good luck man , You won't live long so why to worry a lot enjoy the days , enjoy every single thing you have, now 
 
 [what the fuck why nothing is working fine :0 ]
+
+[12.03.2025]
+[13.03.2025]
+[14.03.2025]
+Its pi day I began earning. a very special day for me as I never have earnt before. From doordash . I have also parcashed new bicycle. O,cycle number is 693? 
+
+[15.03.2025]
+I have earned 103$ today 
+
+[16.03.2025]
+I bind 52$ today 
+
+[17.03.2025]
+Planning something great 
 ```
