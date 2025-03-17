@@ -78,11 +78,8 @@ okey ?
 2. 
 +--+--+--+--+--+--+--+
 | S|Su|Mo|Tu|We|Th|Fr|
-|                    |
-|
-|
-|
-|
++--+--+--+--+--+--+--+
+
 [ ] Confornting yourself, Asking a lot of WHY question .... 
 [ ] Resolve the conflict with your innerselfe :) Good luck man , You won't live long so why to worry a lot enjoy the days , enjoy every single thing you have, now 
 
