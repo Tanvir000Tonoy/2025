@@ -98,4 +98,7 @@ I bind 52$ today
 
 [17.03.2025]
 Planning something great 
+
+[22.03.2025] 
+I have earned 73$ today 
 ```
