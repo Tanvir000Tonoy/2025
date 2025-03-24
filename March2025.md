@@ -101,4 +101,14 @@ Planning something great
 
 [22.03.2025] 
 I have earned 73$ today 
+
+[23.03.2025]
+I have earned 51.46+38.54+27.79 =117.79$ 
+
+[24.03.2025]
+Today I have decided to complete the assignment for the next week and learn all the due tasks from my univeristy. I have talked with my father and he will sent 2000$ for me for spending in the upcoming days. So for now I'm really going to delve deeper into the core concepts of RUBY and GOSU alongside learn the jira project management tool . Another task is to understand the concept of Flip Flops 
+Agenda : 
+1. RUBY + GOSU 
+2. JIRA
+3. Flip Flops 
 ```
