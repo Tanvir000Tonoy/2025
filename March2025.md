@@ -109,6 +109,7 @@ I have earned 51.46+38.54+27.79 =117.79$
 Today I have decided to complete the assignment for the next week and learn all the due tasks from my univeristy. I have talked with my father and he will sent 2000$ for me for spending in the upcoming days. So for now I'm really going to delve deeper into the core concepts of RUBY and GOSU alongside learn the jira project management tool . Another task is to understand the concept of Flip Flops 
 Agenda : 
 1. RUBY + GOSU 
+Before doing that I need to be fully aware the time complexity and other things. Make sure you researched about those topic and then began learn 
 2. JIRA
 3. Flip Flops 
 ```
