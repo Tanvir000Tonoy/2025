@@ -112,4 +112,7 @@ Agenda :
 Before doing that I need to be fully aware the time complexity and other things. Make sure you researched about those topic and then began learn 
 2. JIRA
 3. Flip Flops 
+
+28.03.2025
+I know ruby but not yet complete with gosu. I know how to use jira but not yet used it as a daily driver. Doing flip flops now. This morning will be the assessment day so I'm in hurry 
 ```
