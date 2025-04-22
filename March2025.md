@@ -1,8 +1,8 @@
 ## March Goals 
 1. Understand How swinburne assess you. 
 2. Don't escape from the reality. 
-3. Learn python alongside it's application
-4. Learn how to prepare your meals (cooking)
+3. Learn python alongside it's application - unfinished 
+4. Learn how to prepare your meals (cooking) - somewhat acchomplished 
 
 
 You know Tonoy, you have to do a lot of work. Previously there was your mom who prepared your meal, your dresses and shoes. Your Dad was there whenever you needed money. Now everything is up to you. March 2025 is so important to you. count every single moment and do productive tasks. Try your best to earn. Dedicate 3 hours daily, learn as much as you can. Good luck.
@@ -115,4 +115,5 @@ Before doing that I need to be fully aware the time complexity and other things.
 
 28.03.2025
 I know ruby but not yet complete with gosu. I know how to use jira but not yet used it as a daily driver. Doing flip flops now. This morning will be the assessment day so I'm in hurry 
+
 ```
