@@ -16,3 +16,9 @@ I was really busy and so I did not updated anything promptly. Here I had few unf
 
 [23.04.2025]
 I have earnt 26+34 = 60$ today and spent around 25 , margin 35$ not bad but out of the hell . I have to earn more prominent . I'm planning to learn ruby today 
+
+[25.04.2025] 
+    1. Don't miss the class --- Please 
+    2. Don't straightly come back from your university 
+    3. Figure out what is stoping you from being a good one
+    4. Ask questions. Don't stop asking questions. 
