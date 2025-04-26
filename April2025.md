@@ -23,3 +23,9 @@ I have earnt 26+34 = 60$ today and spent around 25 , margin 35$ not bad but out 
     3. Figure out what is stoping you from being a good one - its internet
     4. Ask questions. Don't stop asking questions. - ask any question to jan ai
     5. 
+
+[26.04.2025]
+I sleept all day long I was tired 
+
+[27.04.2025]
+I'm doing the assingment for the computer systems module week 07 
