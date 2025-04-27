@@ -28,4 +28,7 @@ I have earnt 26+34 = 60$ today and spent around 25 , margin 35$ not bad but out 
 I sleept all day long I was tired 
 
 [27.04.2025]
-I'm doing the assingment for the computer systems module week 07 
+I'm doing the assingment for the computer systems module week 07 - done but not perfect
+
+[28.04.2025]
+Read as much as you can ... 
