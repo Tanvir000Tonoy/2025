@@ -32,3 +32,6 @@ I'm doing the assingment for the computer systems module week 07 - done but not 
 
 [28.04.2025]
 Read as much as you can ... 
+
+[29.04.2025]
+Finsihing rubi programming language - preparing for the exam 30 April 2025
