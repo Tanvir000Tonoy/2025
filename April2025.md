@@ -35,3 +35,6 @@ Read as much as you can ...
 
 [29.04.2025]
 Finsihing rubi programming language - preparing for the exam 30 April 2025
+
+[30.04.2025]
+I have completed my exam and I felt so confident . even though i used little bit of ai but overall I did all the things except few suggestions from ai . which is really good for being a beginer level programmer 
