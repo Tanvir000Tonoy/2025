@@ -35,3 +35,14 @@ Read as much as you can ...
 
 [29.04.2025]
 Finsihing rubi programming language - preparing for the exam 30 April 2025
+
+[30.04.2025]
+I have completed my exam and I felt so confident . even though i used little bit of ai but overall I did all the things except few suggestions from ai . which is really good for being a beginer level programmer 
+
+[01.05.2025]
+We are going to ship from 11 dent st , glen iris 3146 , Vic , to [Melverne ] today I need to finsih those task before leaving : 
+1. Finish your preparation for the next class 
+        i. web technology project - PHP 
+        ii. Introduction to programming - RUBY - GOSU 
+2. Clean the kitchen like a new one 
+3. Pack my belongings 
